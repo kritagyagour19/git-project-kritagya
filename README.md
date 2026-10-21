@@ -11,6 +11,3 @@ my name is kritagya
 ## PROJECT 
 -kritagy hbfdhjsb
 -gour fjdsbjbhi
-## social 
--fbsdhjj
--fdkhvhfvjhjxzb
