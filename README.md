@@ -8,3 +8,6 @@ my name is kritagya
 -communication
 -problem solving 
 -basic git 
+## PROJECT 
+-kritagy hbfdhjsb
+-gour fjdsbjbhi
